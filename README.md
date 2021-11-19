@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ozzditty
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning everything 
+- 💞️ I’m looking to collaborate on garrys mod servers
+- 📫 How to reach me discord
